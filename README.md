@@ -1,1 +1,1 @@
-# calculator
+# Sadvakasov Danial
